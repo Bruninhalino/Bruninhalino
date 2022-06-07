@@ -1,3 +1,3 @@
-- Bruna_linoo
+- @bruna_linoo
 - Londrina-PR
 - @palmeiras
